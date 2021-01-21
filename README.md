@@ -1,5 +1,6 @@
 ### Hi there 👋
 
+![akira image](https://hypebeast.com/image/2020/04/akira-free-to-watch-online-may-katsuhiro-otomo-01.jpg)
 <!--
 **rayfinn55/rayfinn55** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
